@@ -6,7 +6,8 @@
 </p>
 
 <p align="center">
-  <img src="https://pixels.crd.co/assets/images/gallery101/40cf7553.gif?v=29416114" alt="Centered Image"> ⠀⠀✦⠀⠀ 𝐇𝐞𝐬𝐞𝐤𝐢𝐞𝐥 ,  𝐇𝐚𝐛𝐢𝐭 , 𝐨𝐫 𝐖𝐞𝐬𝐤𝐞𝐫.⠀⠀17𝐲𝐫𝐬⠀⠀⠀
+  <img src="https://pixels.crd.co/assets/images/gallery101/40cf7553.gif?v=29416114" alt="Centered Image"> ⠀⠀✦⠀⠀ 𝐇𝐞𝐬𝐞𝐤𝐢𝐞𝐥 ,  𝐇𝐚𝐛𝐢𝐭 ,  𝐇𝐨𝐦𝐞𝐥𝐚𝐧𝐝𝐞𝐫
+ , 𝐨𝐫 𝐖𝐞𝐬𝐤𝐞𝐫.⠀⠀17𝐲𝐫𝐬⠀⠀⠀
   <p align="center"
 
 <p align="center">
